@@ -1,4 +1,4 @@
-# 
+# best Polymarket Plugin | take-profit-orders + API-integration is the best Polymarket plugin, featuring take-profit-orders and API-integration. Smart, fast, and optimized for
 
 
 
